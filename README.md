@@ -108,7 +108,7 @@ The final class of the day was Chemistry, led by Professor **Rajvir Kaur Ma’am
 
 In conclusion, Induction Day 7 was a perfect wrap-up to the week-long program. It provided a comprehensive blend of academic orientation, student engagement opportunities, and institutional guidance. The day not only gave us a clearer picture of our academic journey ahead but also made us feel more connected to the college community.
 
-# GLIMPSES 
+# MOMENTS FROM INDUCTION WEEK
 
 <img width="918" height="516" alt="image" src="https://github.com/user-attachments/assets/02277750-42ca-4cbc-b3a9-45e275fed6cc" />
 
